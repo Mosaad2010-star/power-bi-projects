@@ -1,1 +1,1 @@
-data analyst prijects 
+data analyst projects 
